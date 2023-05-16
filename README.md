@@ -4,7 +4,7 @@ All of my custom Rich Presence preset files for https://github.com/maximmax42/Di
 You can also find all of my and others Preset files in maximax42 Discord Server https://discord.gg/2dEfkR6qfX in the Preset Channel
 you can also request presets in https://discord.com/channels/928333025652121630/1048650650499686450 the presets requests thread
 
-I have previews for almost all of my presets files so you can see what people and you can see when u started it
+I have previews for almost all of my presets files
 
 IF you have any questions contact me on discord dragon GRaf#1312
 
