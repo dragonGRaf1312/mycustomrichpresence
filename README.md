@@ -59,6 +59,10 @@ IF you have any questions contact me on discord dragon GRaf#1312
 
 ![image](https://user-images.githubusercontent.com/65346683/230789310-cd3ce800-c206-45fc-aaf2-f926468c2de2.png)
 
+* python preset for bane02.crp
+
+![2023-05-20 01_59_37-@Halbermonatslhon - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/dd74a5bc-e153-4163-b27b-07387d119d91)
+
 * notonpc.crp
 no preview currently
 * sleeping.crp
