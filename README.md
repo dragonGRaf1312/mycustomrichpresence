@@ -63,6 +63,22 @@ IF you have any questions contact me on discord dragon GRaf#1312
 
 ![2023-05-20 01_59_37-@Halbermonatslhon - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/dd74a5bc-e153-4163-b27b-07387d119d91)
 
+* Call of Duty Black Ops 2.crp
+
+![2023-06-05 03_43_55-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/ad02bd70-c17d-4121-856c-6bb14d4b7da7)
+
+* gtasantos.crp
+
+![2023-06-05 03_34_22-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/b28bf833-4b21-455c-8ad5-e317e181bec6)
+
+* PUBG.crp
+
+![2023-06-05 03_38_13-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/a57e889d-8616-4803-a745-478151b44cbb)
+
+* Zelda Tears of the Kingdom
+
+![2023-06-05 03_40_47-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/5f51af6d-b3cd-4fec-aa70-103b1fb34442)
+
 * notonpc.crp
 no preview currently
 * sleeping.crp
