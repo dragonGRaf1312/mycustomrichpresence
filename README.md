@@ -92,4 +92,4 @@ no preview currently
 
 * ark2.crp by Kamy
 
-https://media.discordapp.net/attachments/1003695207793049670/1101818093384257597/image.png
+![image](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/c6ee856e-a568-4354-a6cb-d4e484cb70a7)
