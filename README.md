@@ -79,6 +79,14 @@ IF you have any questions contact me on discord dragon GRaf#1312
 
 ![2023-06-05 03_40_47-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/5f51af6d-b3cd-4fec-aa70-103b1fb34442)
 
+* Epic Games
+
+![2023-06-18 05_42_04-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/705411c2-e10a-4ec1-a755-2baae773fc3c)
+
+* Free Fire
+
+![2023-06-18 05_29_05-#presets _ CustomRP - Discord](https://github.com/dragonGRaf1312/mycustomrichpresence/assets/65346683/70b1b467-655c-48ab-ab22-f9fa5c09fadb)
+
 * notonpc.crp
 no preview currently
 * sleeping.crp
